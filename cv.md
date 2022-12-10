@@ -107,3 +107,7 @@ City Express delivers everything – documents, parcels and heavy loads - around
 **2013 - 2017**
 
 *Alumnus Bachelor's degree, Marketing*
+
+## Languages
+* Russian - native
+* English - B1
