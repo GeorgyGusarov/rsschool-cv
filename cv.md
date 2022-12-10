@@ -97,3 +97,13 @@ City Express delivers everything – documents, parcels and heavy loads - around
 * Preparation of parcels for shipment in the office of the company;
 * Visiting from 20 to 30 points per day.
 
+## Education
+### Saint-Petersburg state institute of technology
+**2017 - 2019**
+
+*Master's degree, Innovative management*
+
+### Saint-Petersburg state institute of technology
+**2013 - 2017**
+
+*Alumnus Bachelor's degree, Marketing*
