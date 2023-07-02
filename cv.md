@@ -17,12 +17,12 @@ I'm experienced and motivated manager with over 5 years of managing brands and c
 
 ## Experience 
 ### The Rolling Scopes School · *Apprenticeship*
-**Dec 2022 - Present · 1 mo**
+**Dec 2022 - Present · 8 mos**
 
 *Student Frontend Developer*
 
 ### Orimi Trade
-**Oct 2022 - Present · 3 mos**
+**Oct 2022 - Present · 10 mos**
 
 *Brand Manager*
 
