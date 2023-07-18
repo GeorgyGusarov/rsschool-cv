@@ -1,1 +1,1 @@
-https://GeorgyGusarov.github.io/rsschool-cv/
+georgygusarov-JSFEPRESCHOOL2023Q2
